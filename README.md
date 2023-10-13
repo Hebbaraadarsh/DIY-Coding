@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hebbaraadarsh
 - 👀 I’m interested in operating/managing the product.
-- 🌱 I’m self learner, looking for job as a Fresher, who has conpleted MCA.
+- 🌱 I’m self learner, looking for job as a Fresher, completed MCA.
 - 💞️ I’m looking to collaborate with companies to explore my skills and ideas.
 - 📫 How to reach me adarshhebbar28@gmail.com 
 
